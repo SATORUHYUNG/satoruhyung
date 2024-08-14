@@ -12,6 +12,5 @@ satoruhyung1515@gmail.com
 
 ![gojo-satoru](https://github.com/SATORUHYUNG/satoruhyung/assets/171145044/a3424548-b817-40b7-8b35-4d3f6cc686a3)
 
-![gojo-gojo-satoru](https://github.com/user-attachments/assets/bbbf145d-87d6-40cf-9ba3-66b4896abb95)
+![gojo-gojo-satoru](https://github.com/user-attachments/assets/bbbf145d-87d6-40cf-9ba3-66b4896abb95) ![hello-gojo-satoru](https://github.com/user-attachments/assets/e7266686-2930-491d-a667-010fe38a0653)
 
-![hello-gojo-satoru](https://github.com/user-attachments/assets/e7266686-2930-491d-a667-010fe38a0653)
