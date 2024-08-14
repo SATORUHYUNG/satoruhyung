@@ -10,9 +10,7 @@ satoruhyung1515@gmail.com
 
 @yasminia1208
 
-![gojo-satoru](https://github.com/SATORUHYUNG/satoruhyung/assets/171145044/a3424548-b817-40b7-8b35-4d3f6cc686a3)
+![gear-5-luffy-gear-5](https://github.com/user-attachments/assets/2f731760-0587-4aab-9514-063d53046c71)
 
-![gojo-gojo-satoru](https://github.com/user-attachments/assets/bbbf145d-87d6-40cf-9ba3-66b4896abb95) ![hello-gojo-satoru](https://github.com/user-attachments/assets/e7266686-2930-491d-a667-010fe38a0653)
 
-![gg](https://github.com/user-attachments/assets/fd7080fb-1703-48ff-bec4-90122ab8614b)
 
