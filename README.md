@@ -10,7 +10,7 @@ satoruhyung1515@gmail.com
 
 @yasminia1208
 
-![gear-5-luffy-gear-5](https://github.com/user-attachments/assets/2f731760-0587-4aab-9514-063d53046c71)
+![gear-5-luffy-gear-5](https://github.com/user-attachments/assets/68cb91b2-469e-4bed-9fb2-d21701e433b7)
 
 
 
