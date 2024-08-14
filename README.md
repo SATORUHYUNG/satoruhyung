@@ -14,4 +14,5 @@ satoruhyung1515@gmail.com
 
 ![gojo-gojo-satoru](https://github.com/user-attachments/assets/bbbf145d-87d6-40cf-9ba3-66b4896abb95) ![hello-gojo-satoru](https://github.com/user-attachments/assets/e7266686-2930-491d-a667-010fe38a0653)
 
-![Uploading zoro-one-piece-one-piece.gif…]()
+![gg](https://github.com/user-attachments/assets/fd7080fb-1703-48ff-bec4-90122ab8614b)
+
