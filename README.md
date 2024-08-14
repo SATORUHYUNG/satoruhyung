@@ -11,3 +11,5 @@ satoruhyung1515@gmail.com
 @yasminia1208
 
 ![gojo-satoru](https://github.com/SATORUHYUNG/satoruhyung/assets/171145044/a3424548-b817-40b7-8b35-4d3f6cc686a3)
+
+![gojo-gojo-satoru](https://github.com/user-attachments/assets/bbbf145d-87d6-40cf-9ba3-66b4896abb95)
